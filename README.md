@@ -1,4 +1,4 @@
-# Exploring-Emotions-in-the-Wizarding-World-Harry-Potter
+# Exploring Emotions in the-Wizarding World Harry Potter
 
 ## Objective
 
